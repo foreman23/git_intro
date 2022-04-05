@@ -1,1 +1,2 @@
 Brandon Foreman
+foremanb@oregonstate.edu
